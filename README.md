@@ -9,3 +9,7 @@ Kawaiichanbest/Kawaiichanbest is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 Be nice (^▽^)
+Rules
+--------------
+I try not say bad words sorry :(
+I'm busy Don't tell Aphmau
