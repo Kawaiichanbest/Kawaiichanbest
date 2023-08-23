@@ -13,3 +13,4 @@ Rules
 --------------
 I try not say bad words sorry :(
 I'm busy Don't tell Aphmau
+I'm Kawaii chan
